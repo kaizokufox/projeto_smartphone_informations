@@ -1,0 +1,1 @@
+# projeto_smartphone_informations
